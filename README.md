@@ -1,2 +1,2 @@
 
-![результат](file:///C:/Users/Ksy18/Downloads/2023-05-21_22-54-05.png)
+![результат](https://avatars.mds.yandex.net/get-images-cbir/1381513/pl2FMRnWONVzYG90Y6UXaQ9139/ocr)
